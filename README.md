@@ -1,1 +1,11 @@
 # Quantium-Data-Analytics
+![image](https://github.com/user-attachments/assets/6cf1e248-abe8-4e2a-9139-936529c57396)
+![image](https://github.com/user-attachments/assets/3998235f-f409-48bc-80a4-c91022adfaba)
+![image](https://github.com/user-attachments/assets/a3db1fe2-3315-4071-8ddb-2d1df6e31a0c)
+![image](https://github.com/user-attachments/assets/b18daaba-abdf-42a5-9793-190bf0abc7e4)
+![image](https://github.com/user-attachments/assets/651f6709-caf6-4b05-9ce0-f157042a9cd5)
+![image](https://github.com/user-attachments/assets/634d2f64-19e3-43bc-8bc2-d4e179be5bd9)
+![image](https://github.com/user-attachments/assets/470ee5d9-a00e-4dcf-a982-505fe127957f)
+![image](https://github.com/user-attachments/assets/65491701-ec07-4b8c-861d-e24f4ffbc400)
+![image](https://github.com/user-attachments/assets/4e1f1d87-01e4-4b74-9e1a-a0f4cce4b694)
+![image](https://github.com/user-attachments/assets/19f7835b-26df-448b-bf2c-adc282a60488)
